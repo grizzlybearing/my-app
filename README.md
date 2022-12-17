@@ -1,1 +1,1 @@
-https://rinrisha.github.io/rinrisha.github.io/
+да запустись ты
